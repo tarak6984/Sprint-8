@@ -5,3 +5,7 @@
 - 📄 [Resume](https://docs.google.com/document/d/1uLpVkV2X1tqHdV7XzABKUVma-ypAG9gOfSl8mehUrj0/edit?usp=sharing)
 
 
+## GCA Scores
+![image](https://github.com/user-attachments/assets/bbc8bc41-e63a-4ed7-b965-20565e0e6379)
+
+
